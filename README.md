@@ -6,3 +6,6 @@
 
 ``` In what language will I be remembered, No language has been around since the start of mankind intelligence```
       - Ronaldson Bellande
+
+``` Being free of bounds is not given, it is taken, you work for it, you maintain it ```
+      - Ronaldson Bellande
