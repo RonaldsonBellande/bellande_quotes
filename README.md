@@ -9,3 +9,6 @@
 
 ``` Being free of bounds is not given, it is taken, you work for it, you maintain it ```
       - Ronaldson Bellande
+
+``` The thought of knowing an individual is is baseless, only the individual knows who they are and what they are holding back```
+      - Ronaldson Bellande
