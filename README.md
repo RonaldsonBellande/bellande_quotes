@@ -12,3 +12,6 @@
 
 ``` The thought of knowing an individual is baseless, only the individual knows who they are and what they are holding back```
       - Ronaldson Bellande
+
+``` Everyone lives in there own illutions or reality only seperated by truth and awareness, as information is neither good or evil```
+      - Ronaldson Bellande
