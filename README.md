@@ -18,3 +18,6 @@
 
 ``` Individual being is what is important to there self and there surrounding, Including the surrounding confine to itself not seen```
       - Ronaldson Bellande
+      
+``` Individual bound are not configured to individual and are not welcome in the start```
+      - Ronaldson Bellande
