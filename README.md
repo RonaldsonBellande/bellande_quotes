@@ -15,3 +15,6 @@
 
 ``` Everyone lives in there own illutions or reality only seperated by truth and awareness, as information is neither good or evil```
       - Ronaldson Bellande
+
+``` Individual being is what is important to there self and there surrounding, Including the surrounding confine to itself not seen```
+      - Ronaldson Bellande
