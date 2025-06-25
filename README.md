@@ -21,3 +21,6 @@
       
 ``` Individual bound are not configured to individual and are not welcome in the start```
       - Ronaldson Bellande
+
+``` One opportunity and what life give you, take it```
+      - Ronaldson Bellande
