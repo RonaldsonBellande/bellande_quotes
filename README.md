@@ -22,5 +22,5 @@
 ``` Individual bound are not configured to individual and are not welcome in the start```
       - Ronaldson Bellande
 
-``` One opportunity and what life give you, take it```
+``` One opportunity and what life gives you, take it; as positive turns negative before it becomes absolute ```
       - Ronaldson Bellande
