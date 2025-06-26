@@ -24,3 +24,6 @@
 
 ``` One opportunity and what life gives you, take it; as positive turns negative before it becomes absolute ```
       - Ronaldson Bellande
+
+``` Implies to be boundless, unshadowed, unknowable and apply such aspect ```
+      - Ronaldson Bellande
