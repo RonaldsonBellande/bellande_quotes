@@ -27,3 +27,6 @@
 
 ``` Implies to be boundless, unshadowed, unknowable and apply such aspect ```
       - Ronaldson Bellande
+
+``` Any individual education, no need for any opposite relation as work comes ```
+      - Ronaldson Bellande
