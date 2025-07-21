@@ -28,5 +28,5 @@
 ``` Implies to be boundless, unshadowed, unknowable and apply such aspect ```
       - Ronaldson Bellande
 
-``` Any individual education, no need for any opposite relation as work comes ```
+``` Any individual education, no need for any opposite relation as work comes don't even start, absolute for the next decade```
       - Ronaldson Bellande
